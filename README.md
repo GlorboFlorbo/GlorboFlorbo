@@ -1,0 +1,1 @@
+Kkurva, zase na mrdky.
